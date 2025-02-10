@@ -1,5 +1,5 @@
 # RJ1145142的个人博客 :link: https://Sansanabc.github.io 
-### :page_facing_up: [21](https://Sansanabc.github.io/tag.html) 
+### :page_facing_up: [21](https://blog.rj1145142.us.kg/) 
 ### :speech_balloon: 4 
 ### :hibiscus: 3769 
 ### :alarm_clock: 2025-02-03 20:05:48 
