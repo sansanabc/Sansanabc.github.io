@@ -1,4 +1,4 @@
-# RJ1145142的个人博客 :link: http://blog.rj1145142.linkpc.net//
+# RJ1145142的个人博客 :link: http://blog.rj1145142.dpdns.org
 ### :page_facing_up: [21](https://blog.rj1145142.us.kg/) 
 ### :speech_balloon: 4 
 ### :hibiscus: 3769 
